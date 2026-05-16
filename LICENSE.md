@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with professional Bot for MEV sniper bot | honeypot-detection & gas-optimization, the #1 MEV sniper bot. Includes honeypot-detection and gas-optimization for
 
 
 
